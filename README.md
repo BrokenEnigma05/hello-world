@@ -1,3 +1,2 @@
 # hello-world
 unemployed mom, want my own agencies in the future, need to leave this house my son deserves better, i need help i know im not the only one but i need a miracle willing to give miracles,teach me,let me help
-i want to give to those in need those who have illness without home and food clothing but i need to go back to school own my own home with my 6 year old son he deserves it i need help to help others but there are things i need to learn and nothing comes free im about to lose the love off my life and need help on my feet i was jumped 3 times and now im scared to leave the house i dont work not back in school so i need to learn new things to getter smarter and support my son and others today... where do i start im tired of having nothing being fucked over
